@@ -37,7 +37,7 @@
 ## 📚 Образование
 
 •   Moscow Aviation Institute, Nanotechnology - 2018-2022  
-•   National Research University of Electronic Technology, Big data analyst 2022-2024  
+•   National Research University of Electronic Technology, Big data analyst - 2022-2024  
 •   SF Education, Data Science Academy - 2025 
 
 
