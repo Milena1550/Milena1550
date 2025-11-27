@@ -47,7 +47,7 @@
 
 ## 🤝 Связаться со мной
 
-•   **Email:** milenyan00@mail.ru  
+•   **Email:** [milenyan00@mail.ru[  
 •   **Telegram:** [@milena1501]  
 •   **GitHub:** [https://github.com/Milena1550]  
 
